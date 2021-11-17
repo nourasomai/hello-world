@@ -1,3 +1,4 @@
+Hallo wereld - Kinderen voor Kinderen
 Hallo wereld, wereld,
 De wereld is van mij.
 Er is ruimte zat,
